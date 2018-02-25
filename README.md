@@ -8,3 +8,6 @@ https://docs.google.com/spreadsheets/d/1JR70fsfRBMiF7Kq9wEmMMgoBK9dQ351AOBLDB6Wl
 
 https://docs.google.com/forms/d/e/1FAIpQLSf8werQ48RWOdXW2VbjFNtjbevm4B0pn1r6NShw0ZCsfkmBlQ/viewform?usp=sf_link - ссылка на саму форму 
 
+## Последняя часть задания была выполнена в онлайн редактировании формы. 
+
+Исходя из моего опроса, можно сделать вывод, что люди испытывают чувство недосыпа, с которым они уже смирились (по большей части), вне зависимости от возраста или статуса. ИТОГ: мы вечные студенты, сон нам только снится, отдохнем после смерти. 
